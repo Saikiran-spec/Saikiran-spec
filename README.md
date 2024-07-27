@@ -9,5 +9,3 @@
 📫 How to reach me -> chittyreddysaikiran@gmail.com
 
 🧑‍💼 Linkedin -> https://www.linkedin.com/in/sai-kiran-reddy-chittyreddy-3a8846231/
-
-•
