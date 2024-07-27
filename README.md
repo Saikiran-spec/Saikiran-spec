@@ -1,6 +1,6 @@
 👋 Hi, I’m @SaikiranReddy
 
-👀 I’m interested in Competitive Programming, C++/GoLang Development
+👀 I’m interested in Fullstack Development,UIUX,Machine learning
 
 🌱 I’m currently exploring Design and FullStack
 
